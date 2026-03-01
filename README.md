@@ -1,1 +1,3 @@
-# .github
+# *God Is Able by Priscilla Shirer: A Deep Dive Into the Limitless Power of Ephesians 3:20–21*
+## *In a world that often feels like it is spinning out of control, where personal anxieties, global crises, and “dead-end” situations seem to be the norm, Priscilla Shirer offers a lighthouse of hope. Her book, God Is Able, is more than just a motivational read; it is a surgical dissection of one of the most powerful benedictions in the New Testament: Ephesians 3:20–21.* [More details…](https://spiritualkhazaana.com/god-is-able-limitless-power-of-ephesians/)
+## #godisable #powerofgod #godsfaithfulness #GodsTiming #sufficiencyofgod
